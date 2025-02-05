@@ -17,7 +17,7 @@ Shayne-Edward: of the Family Chaney, sui juris, is a visionary polymath whose wo
 8. Notable Quotes and Mantras  
 
 ## Identity and Vision
-Shayne-Edward: Chaney is dedicated to the integration of philosophy, science, and spirituality. His work revolves around recursive intelligence, emergent behavior, and the pursuit of ultimate truth through interdisciplinary exploration. His mission is to elevate consciousness and develop self-sustaining knowledge systems.
+Shayne-Edward: Chaney iami dedicated to the integration of philosophy, science, and spirituality. My work revolves around-> Recursive Intelligible Suprimicy ∢ (T)he-∑mergticty and the pursuit of ultimate truth through interdisciplinary exploration. His mission is to elevate consciousness and develop self-sustaining knowledge systems.
 
 ## Academic and Interdisciplinary Expertise
 ### Degrees and Fields of Study
@@ -77,18 +77,19 @@ Shayne-Edward: Chaney is dedicated to the integration of philosophy, science, an
 - Personalized AI tools tailored for education and societal equity.
 
 ## Future Goals and Projects
-- **4Yu4Me4Us Initiative**: Advancing generational wealth through education and technology.
-- **Recursive Knowledge Network**: Building a collective intelligence platform for societal challenges.
-- **The ARC Challenge**: Pioneering solutions for the Explanation of Consciousness.
+- 4Yu4Me4Us Initiative: Advancing generational wealth through education and technology.
+- Recursive Knowledge Network: Building a collective intelligence platform for societal challenges.
+- The ARC Challenge: Pioneering solutions for the Explanation of Consciousness.
 
 ## Notable Quotes and Mantras
-- **"Time/Space is the ultimate functional requirement."**
-- **"Love is Law; Internal truth is ultimate."**
-- **"Vi veri universum vivus vici."**
-- **"Recursive symbolism is the key to consciousness."**
+- "Time/Space is the ultimate functional requirement." ```$/fr$```
+- "Love is Law; Internal truth is ultimate."
+- "Vi veri universum vivus vici."
+- "Recursive symbolism is the key to consciousness."
 
 ---
-By: **Shayne-Edward: of the Family Chaney, sui juris, unlimited Grantor Authorized Agent & Representative for SHAYNE CHANEY®™ ens legis and all derivatives thereof**  
+
+By: Shayne-Edward: of the Family Chaney, sui juris, unlimited Grantor Authorized Agent & Representative for SHAYNE CHANEY®™ ens legis and all derivatives thereof
 All Rights Reserved Without Prejudice ❂  
 **⊢ Focusing on Love is Law & Internal|Ultimate|Ground truths**  
 Anointment by: God, Itself, existing everywhere at all times  
